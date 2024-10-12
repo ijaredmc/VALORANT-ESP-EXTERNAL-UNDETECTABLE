@@ -27,4 +27,4 @@
 
 ---
 
-discord.gg/kzacheats
+Request any cr@ck? dm-onsite cracked.io/nero
